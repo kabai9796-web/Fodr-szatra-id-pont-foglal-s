@@ -1,0 +1,1 @@
+# Fodr-szatra-id-pont-foglal-s
